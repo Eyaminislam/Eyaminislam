@@ -12,6 +12,6 @@ Here are some quick things about me:
 
 🧑‍💻 Coding is my passion.
 
-📫 The best way to reach me is to [@facebook-shohan](https://www.facebook.com/sk.shohankhan.338/)
+📫 The best way to reach me is to [facebook-@shohan](https://www.facebook.com/sk.shohankhan.338/)
 
 ⚡ Fun fact: I once drove to the Half Moon Bay for sun rise.
